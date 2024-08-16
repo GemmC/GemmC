@@ -5,4 +5,3 @@
 - 📫 You can contact me through the social links on my profile
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: Originally a Londoner, now an honourary Manc
--->
